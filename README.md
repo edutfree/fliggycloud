@@ -1,4 +1,4 @@
-# 飞天猪官网地址2025最新入口 + 限时优惠码
+# fliggycloud飞天猪官网地址2025最新入口 + 限时优惠码
 
 永久官网：[fliggyaff.xyz](https://xuv.cc/out/fliggy)
 
